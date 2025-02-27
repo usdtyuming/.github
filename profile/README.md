@@ -2,4 +2,4 @@
 免实名购买域名 USDT支付
 
 
->> [USDT购买免实名域名](https://www.md5host.com)
+ ➤➤ USDT购买[免实名域名](https://www.md5host.com)
